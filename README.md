@@ -1,2 +1,2 @@
 # hello-world
-hello-world says hello to the world
+find a way to live a stress free life.
